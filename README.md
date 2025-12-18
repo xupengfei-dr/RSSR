@@ -6,7 +6,7 @@
 
 🔨🔨🔨
 # 目前论文已经进入二审阶段 2025/12/18
-The paper has currently entered the second review stage as of 2025/12/18.
+The paper has currently entered the second review stage as of 2025/11/12.
 
 
 
